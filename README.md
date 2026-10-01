@@ -13,7 +13,7 @@
 
 - ໒꒰ྀི´• ˕ •` ꒱ྀིა Get in touch **discord: @cyberfied**
 
-- ⋆.˚⟡ ࣪ ˖🎀⋆.˚⟡ ࣪ ˖ My carrd! [https://lexajpg.carrd.co/](https://cyberfied.crd.co/)
+- ⋆.˚⟡ ࣪ ˖🎀⋆.˚⟡ ࣪ ˖ My carrd! https://cyberfied.crd.co/
 
 - ‧₊˚ ☁️⋅♡𓂃 ࣪ ִֶָ☾. **Thanks to: my animals ♡**
 
